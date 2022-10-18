@@ -1,1 +1,1 @@
-#halo semua
+#halo semua minna arigato temmewa
